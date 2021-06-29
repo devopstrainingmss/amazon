@@ -1,3 +1,4 @@
-i frnds
+i frndis
 
-good morning guys
+good morning guy
+good evening guys 
